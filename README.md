@@ -10,4 +10,4 @@ Meu nome é Nicole Beatriz da silva
 
 nickbea2017@gmail.com
 
-![descrição do GIF](https://tenor.com/pt-BR/view/the-owl-house-lumity-luz-noceda-amity-blight-lizlisa-gif-26899149)
+![descrição do GIF](https://media1.tenor.com/m/2QhToXGHrMwAAAAC/the-owl-house-lumity.gif)
